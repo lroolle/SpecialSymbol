@@ -1,4 +1,4 @@
-# Special Symbols Might Look Cool
+# Special Symbols Might Look ☪◑◐☂
 
 
 ☠ ☮ ☯ ♠ Ω ♤ ♣ ♧ ♥ ♡ ♦ ♢ ♔ ♕ ♚ ♛ ⚜ ★ ☆ ✮ ✯ ☄ ☾ ☽ ☼ ☀ ☁ ☂ ☃ ☻ ☺ ☹ ۞ ۩
