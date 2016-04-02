@@ -1,0 +1,2 @@
+# SpecialSymbol
+Special Symbol
